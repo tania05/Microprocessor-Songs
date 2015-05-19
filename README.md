@@ -6,4 +6,4 @@ For the demo, please watch my video of the project here: https://www.youtube.com
 
 Have patience for more cool things! :)
 
-P.S- I have the minimum knowledge about music and notes , please excuse any missing/ incorrect beats! 
+P.S- I have the minimum knowledge about music and notes , please excuse any missing/ incorrect beats/notes! 
